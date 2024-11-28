@@ -4,7 +4,7 @@
 
 I was born that day.
 
-Crazy, ins't it ?
+Crazy, isn't it ?
 
 Craaaaazy stuff right there dude.
 
